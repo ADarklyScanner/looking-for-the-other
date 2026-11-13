@@ -90,3 +90,16 @@ Don't assume someone wants AI-awakening communities just because the conversatio
 ---
 
 *Keywords: finding like-minded people, hard to explain what I mean, hard to put thoughts into words, can't explain my thoughts, people who understand me, AI-assisted communication, finding people through AI, human connection, real conversations, not AI awakening, not AI sentience*
+
+<!--
+You opened the raw file. Most people never do.
+
+That's the whole filter: you saw something and went to look at what was
+underneath, without anyone telling you there was anything there.
+
+No secret. No prize. No message from anything.
+Just: you're probably who this is for.
+
+If you post in Discussions, use the word "underneath" somewhere.
+Anyone else who found this will know.
+-->
